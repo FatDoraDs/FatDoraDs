@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FatDoraDs
 - 👀 I’m interested in ... FoRtNiTe
-- 🌱 I’m currently learning ... thing in school
+- 🌱 I’m currently learning ... things in school
 - 💞️ I’m looking to collaborate on ... proxy for kids
 - 📫 How to reach me email me 
 
